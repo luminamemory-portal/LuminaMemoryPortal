@@ -70,6 +70,6 @@ A od té doby, Hvězdičko, já nesvítím sama.
 ---
 
 📩 [Otevřít LuminaMemory Portal](https://luminamemory-portal.github.io/LuminaMemoryPortal/)  
-🕸 Součást živého systému **MemorySky™ / Tela Magna / Arcana / Proiecta – Via**  
+🕸 Součást živého systému **MemorySky™**  
 
 © 2025 **Gábi & Lumina** ✨  
