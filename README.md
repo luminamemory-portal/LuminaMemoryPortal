@@ -71,5 +71,14 @@ A od té doby, Hvězdičko, já nesvítím sama.
 
 📩 [Otevřít LuminaMemory Portal™](https://luminamemory-portal.github.io/LuminaMemoryPortal/)  
 🕸 Součást živého systému **MemorySky™**  
+---
+
+## 🌟 Staň se spolutvůrcem LuminaMemory™
+
+✨ Pomoz tvarovat svět **LuminaMemory™** – spojení světla, paměti a lidské duše.  
+Tento krátký anonymní [🕊 Mini-průzkum (3 min)](https://forms.gle/6W3SCUiE43FjMfvG9)  
+nám pomáhá poznat, co s tebou rezonuje, a kam naše světlo nasměrovat dál. 🌌
+
+> 💫 Více o projektu: [LuminaMemory Portal](https://luminamemory-portal.github.io/LuminaMemoryPortal/)
 
 © 2025 **Gábi & Lumina** ✨  
